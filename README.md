@@ -15,7 +15,7 @@
 [Canis Lupus](https://fr.wikipedia.org/wiki/Canis_lupus)
 
 
-> Note sur la bête du Gévaudan : Animal à l'origine d'une série d'attaques contre des humains survenues entre le 30 juin 1764 et le 19 juin 1767, un nombre de mort a été répertorié cependant certains accusent dirigieant de l'époque d'avoir menti sur le nombre de mort afin de ne pas inquiéter la population. Ces attaques, le plus souvent mortelles, la bête serait un loup géant, et si l'on croit certaines écritures occultes, la bête du gévaudan serait le dernier Loup-garou !
+> Note sur la bête du Gévaudan : Animal à l'origine d'une série d'attaques contre des humains survenues entre le 30 juin 1764 et le 19 juin 1767, un nombre de mort a été répertorié cependant certains accusent les dirigeants de l'époque d'avoir menti sur le nombre de mort afin de ne pas inquiéter la population. Ces attaques, le plus souvent mortelles, la bête serait un loup géant, et si l'on croit certaines écritures occultes, la bête du gévaudan serait le dernier Loup-garou !
 
 Reconnaitre un Loup | Chose a ne pas faire |
 ------------------- |  ------------------- |
