@@ -21,7 +21,7 @@ Reconnaitre un Loup | Chose a ne pas faire |
 ------------------- |  ------------------- |
 Patte plus grosse | Ne pas poser sa main sur sa tête 
 Oreille ferme et pointue | Ne pas lui tirer l'oreille
-Croc plus long |
+Croc plus long | Ne pas se diriger en premier vers les plus petits de la meute
 
 
 
