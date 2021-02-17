@@ -17,7 +17,12 @@
 
 > Note sur la bête du Gévaudan : Animal à l'origine d'une série d'attaques contre des humains survenues entre le 30 juin 1764 et le 19 juin 1767. Ces attaques, le plus souvent mortelles, la bête serait un loup géant, et si l'on croit certaines écritures occultes, la bête du gévaudan serait le dernier Loup-garou !
 
-Loup 
+Reconnaitre un Loup |
+---------------------
+Patte plus grosse
+Oreille plus ferme et pointue 
+Croc plus long 
+
 
 
 
