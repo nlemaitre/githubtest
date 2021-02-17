@@ -21,7 +21,7 @@ Reconnaitre un Loup | Chose a ne pas faire | A savoir |
 ------------------- |  ------------------- | -------- |
 Patte plus grosse | Ne pas poser sa main sur sa tête | Les loups attaquent principalement les chevilles et la gorge
 Oreille ferme et pointue | Ne pas lui tirer l'oreille | ils hurlent pour rassembler ou indiquer leur position a la meute
-Croc plus long | Ne pas se diriger en premier vers les plus petits de la meute |
+Croc plus long jusqu'à 7cm | Ne pas se diriger en premier vers les plus petits de la meute |
 
 
 
