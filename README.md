@@ -9,6 +9,8 @@
 5. Lieu & mode de vie 
 6. 
 7. 
+8. 
+9. 
 
 ![GitHub Logo](/images/logo.png) Format: ![Alt Text](https://www.sudinfo.be/sites/default/files/dpistyles_v2/FirstImageUrl/2021/01/13/node_309308/46371256/public/2021/01/13/B9725805879Z.1_20210113183007_000+GJMHD0PJF.1-0.jpg?itok=CJ3QTVHk1610559042)
 
