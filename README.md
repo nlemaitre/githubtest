@@ -19,9 +19,9 @@
 
 Reconnaitre un Loup | Chose a ne pas faire |
 --------------------  ---------------------
-Patte plus grosse
-Oreille ferme et pointue 
-Croc plus long 
+Patte plus grosse |
+Oreille ferme et pointue |
+Croc plus long |
 
 
 
