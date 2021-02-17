@@ -13,11 +13,7 @@
 [Canis Lupus](https://fr.wikipedia.org/wiki/Canis_lupus)
 
 
-## Sen'Verse <h3>
-  
-1. Val'Lon
- 
-![GitHub Logo](/images/logo.png) Format: ![Alt Text](https://i.pinimg.com/originals/cd/fb/27/cdfb27ce2f2e15b68bf7d2d1e59c268d.jpg)
+> Note sur la bête du Gévaudan : Animal à l'origine d'une série d'attaques contre des humains survenues entre le 30 juin 1764 et le 19 juin 1767. Ces attaques, le plus souvent mortelles, la bête serait un loup géant, et si l'on croit certaines écritures occultes, la bête du gévaudan serait le dernier Loup-garou !
 
 
 
